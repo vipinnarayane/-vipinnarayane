@@ -1,4 +1,4 @@
-# 👋 Hello, I'm [Your Name]
+# 👋 Hello, I'm Vipin Narayane
 
 **Seasoned IT Project Manager** with 23+ years of experience in software development and 7+ years in project management. My career has been dedicated to driving successful projects through a combination of technical expertise and strategic leadership.
 
